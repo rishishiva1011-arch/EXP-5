@@ -34,6 +34,7 @@ LINE REGULATIONS
 
 <img width="616" height="315" alt="Screenshot 2025-12-19 113310" src="https://github.com/user-attachments/assets/9f64cd5a-5c6d-459c-b46e-878d14b1aa4b" />
 
+
 ![photo_2025-12-25_22-12-28](https://github.com/user-attachments/assets/593aa35f-fe7f-4088-9c33-beacb72e0969)
 
 
@@ -42,9 +43,12 @@ LOAD  REGULATIONS
 
 ![photo_2025-12-25_22-12-10](https://github.com/user-attachments/assets/d1053a58-201c-4575-b7b0-97365c1552fc)
 
+
 <img width="602" height="322" alt="Screenshot 2025-12-19 113633" src="https://github.com/user-attachments/assets/b3d6f2cf-915c-4750-80f2-7cca86e74957" />
 
+
 ![photo_2025-12-25_22-12-25](https://github.com/user-attachments/assets/d917aa0f-1f84-4403-b95c-542f0e844e15)
+
 
 PRECAUTIONS:
 
