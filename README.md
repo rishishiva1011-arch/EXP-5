@@ -29,19 +29,18 @@ PROCEDURE:
 
 LINE REGULATIONS
 
-![photo_2025-12-25_16-03-08](https://github.com/user-attachments/assets/fb19221d-435b-4dc1-8427-163a14ce75ec)
+![photo_2025-12-25_22-12-02](https://github.com/user-attachments/assets/c4af881c-0f8f-4073-81cb-887b12230d30)
+
 
 <img width="616" height="315" alt="Screenshot 2025-12-19 113310" src="https://github.com/user-attachments/assets/9f64cd5a-5c6d-459c-b46e-878d14b1aa4b" />
 
-![photo_2025-12-25_16-03-05](https://github.com/user-attachments/assets/58eebbdc-9242-43ff-80c1-167d1d2715fe)
+![photo_2025-12-25_22-12-28](https://github.com/user-attachments/assets/593aa35f-fe7f-4088-9c33-beacb72e0969)
+
+
 
 LOAD  REGULATIONS
 
 <img width="602" height="322" alt="Screenshot 2025-12-19 113633" src="https://github.com/user-attachments/assets/b3d6f2cf-915c-4750-80f2-7cca86e74957" />
-
-![photo_2025-12-25_16-03-11](https://github.com/user-attachments/assets/a897c71d-e966-4ee5-a0a2-d3b2d6fa4acd)
-
-![photo_2025-12-25_16-03-04](https://github.com/user-attachments/assets/7856843f-2929-469a-80e5-c49b413ebf00)
 
 PRECAUTIONS:
 
